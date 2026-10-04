@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Piyush Mandhare
+# Hi there! 👋 I'm Sanskar Mahamuni
 
 ### 🎓 Engineering Student | Aspiring Developer
 
